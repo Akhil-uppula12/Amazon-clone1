@@ -1,2 +1,2 @@
 # Amazon-clone1
-![Screenshot (868)](https://github.com/user-attachments/assets/ab526866-237a-4db4-9126-858fd5d01b5d)
+![Screenshot (869)](https://github.com/user-attachments/assets/d2f6534e-fcd9-49ae-864f-9297596e07f7)
